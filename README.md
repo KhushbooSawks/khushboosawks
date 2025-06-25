@@ -27,7 +27,7 @@
 
 ## 📫 Connect with Me
 - 📧 Email: **khushboosawks@gmail.com**
-- 🔗 [LinkedIn]()
+- 🔗 [LinkedIn](https://www.linkedin.com/in/khushboo-kumari-3aa918292)
   
 “When hardware meets intelligence, innovation happens.”
 
